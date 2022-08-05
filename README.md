@@ -1,5 +1,5 @@
 
-![profilepic-removebg-preview](https://user-images.githubusercontent.com/87891679/183012387-a6e4d71a-6940-4233-84b5-8a2d8bc2bd09.png)
+
 
 
 - 👋 Hi, I’m @markryan03
